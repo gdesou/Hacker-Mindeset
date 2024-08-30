@@ -1,1 +1,1 @@
-# Hacker-Mindeset
+# Hacker-Mindset
